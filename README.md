@@ -1,3 +1,3 @@
-# gamingumar.github.io
+# gamingumar.com
 
 ### Umar Aamer Profile 
